@@ -1,7 +1,7 @@
 <img align="center" style="margin-bottom:100px" width=100% src="https://c.wallhere.com/photos/0b/39/artwork_digital_art_nature_clouds_mountains_sunset-2231126.jpg!d" />
 &nbsp;&nbsp;&nbsp;
 
-<p align="center">Hi ❤️ I'm Jullya. <br><br> Atualmente estou cursando Programação em uma escola técnica , Eu sou <strong>organizada com minhas tarefas</strong> e gosto de sempre dar o meu máximo em meus trabalhos. Hoje, eu pretendo <strong>continuar me dedicando em meus estudos </strong> e focar na minha vida profissional</p>&nbsp;
+<p align="center">Hi ❤️ I'm Jullya. <br><br> Atualmente estou cursando TI em uma escola técnica. Sou <strong>organizada com minhas tarefas</strong> e gosto de sempre dar o meu máximo em meus trabalhos. Hoje, eu pretendo <strong>continuar me dedicando em meus estudos </strong> e focar na minha vida profissional</p>&nbsp;
 
  <div>
 <div align="center">
